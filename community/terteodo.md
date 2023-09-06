@@ -1,0 +1,1 @@
+Meu nome é Nicolas Nogueira, tenho 22 anos, sou analista de dados sempre buscando dar um passo adiante
